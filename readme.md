@@ -1,0 +1,1 @@
+This Chocolate Mug Cake is incredibly easy to make with just a few simple ingredients and made right in the microwave. Perfect for an easy chocolate dessert!
